@@ -8,7 +8,6 @@ Currently Studying Software Egnineering.
 
 A part-time Freelancer.
 
-CEO at vynero.
 
 ### What I use
 
