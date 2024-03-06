@@ -4,9 +4,9 @@ I'm Haythem Drihmi. An enthusiast sofware engineer with great passion for what I
 
 ### What I'm doing
 
-Currently Studying Software Egnineering.
+Software Egnineer.
 
-A part-time Freelancer.
+Freelancer, Project Manager.
 
 
 ### What I use
